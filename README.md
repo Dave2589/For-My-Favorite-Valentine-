@@ -1,3 +1,4 @@
 # For-My-Favorite-Valentine-
-A SPECIAL VALENTINE REQUEST 
-A special Valentine's page for my Favorite ❤️"
+ WILL YOU BE MY VAL 💗 💗 
+YES OR NO 
+SAYYYYYY YESSSSSSSS
